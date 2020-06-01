@@ -7,7 +7,7 @@ Best cheats 100% free!
 All Cool Stuff like fly, noclip, fast(speed)!  
 You also have X-Ray just press f5 multiple times!  
 
-Updates will be avaible here too!
+Updates will be available here too!
 
 ## Latest Download (5.3.0-58f523e36)
 
