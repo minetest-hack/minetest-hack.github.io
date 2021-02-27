@@ -1,1 +1,0 @@
-Sitemap: https://minetest-hack.github.io/sitemap.xml
